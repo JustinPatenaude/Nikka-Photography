@@ -1,1 +1,1 @@
-# Nikka-Photography
+# SquidzApparel
